@@ -4,4 +4,4 @@
 https://t.me/reaEstatebot
 
 
-1750$ за строку
+1750
